@@ -2,9 +2,11 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bold+Cursive&weight=300&size=21&letterSpacing=5&duration=4000&pause=1000&color=6ABBF7&background=88D0FF00&width=435&lines=Pick+up+the+phone+Pick+up+the+phone+.;Why+are+my+kids+not+home+%3F" alt="Typing SVG" /></a>
 
+![](https://komarev.com/ghpvc/?username=ChanceInMyBed&color=183666)
+
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ . . .
 
-୭ৎ ,, ◞ 𓈒  ▽. 𝐈 𝐛𝐥𝐨𝐜𝐤 𝐩𝐞𝐨𝐩𝐥𝐞 𝐟𝐫𝐞𝐞𝐥𝐲 𝐬𝐨𝐫𝐫𝐲 ^_^ ▽ . ◞  ୭ৎ
+୭ৎ ,, ◞ 𓈒  ▽. 𝐈 𝐛𝐥𝐨𝐜𝐤 𝐩𝐞𝐨𝐩𝐥𝐞 𝐟𝐫𝐞𝐞𝐥𝐲 𝐬𝐨𝐫𝐫𝐲 ^_^ ▽ . ◞  ୭ৎ!  
  
 + 𝐈𝐦 𝐣𝐨𝐤𝐞𝐟𝐮𝐥 𝐚𝐧𝐝 𝐬𝐚𝐫𝐜𝐚𝐬𝐭𝐢𝐜 ( 𝐞𝐭𝐜 . ) 𝐝𝐨𝐧𝐭 𝐭𝐚𝐤𝐞 𝐦𝐞 𝐭𝐨𝐨 𝐬𝐞𝐫𝐢𝐨𝐮𝐬𝐥𝐲
 
