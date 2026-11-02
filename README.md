@@ -1,7 +1,7 @@
 ![moon.jar](https://github.com/ChanceInMyBed/itrpaed/blob/main/aaaa.jpg?raw=true)
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bold+Cursive&weight=300&size=21&letterSpacing=5&duration=4000&pause=1000&color=6ABBF7&background=88D0FF00&width=435&lines=Pick+up+the+phone+Pick+up+the+phone+.;Why+are+my+kids+not+home+%3F" alt="Typing SVG" /></a>
-![](https://komarev.com/ghpvc/?username=ChanceInMyBed&label=🇸​🇹​🇦​🇧​🇧​🇪​🇩​+🇵​🇪​🇴​🇵​🇪​🇱​&color=0e6a7c)
+      ![](https://komarev.com/ghpvc/?username=ChanceInMyBed&label=🇸​🇹​🇦​🇧​🇧​🇪​🇩​+🇵​🇪​🇴​🇵​🇪​🇱​&color=0e6a7c)
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ . . .
 
