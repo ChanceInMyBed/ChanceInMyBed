@@ -21,7 +21,7 @@
 
 ▽ . . .  LAUGH OF THE MONTH PLS WHATEVER THAT IS. . :
 
-![spy..](<img width="1079" height="1093" alt="Image" src="https://github.com/user-attachments/assets/47a19aaf-2af5-4315-b6cb-43b19f049170" />)
+![spy..]()
 
 𝐂𝐑𝐄𝐀𝐓𝐎𝐑𝐒 𝐈 𝐋𝐎𝐕𝐄 !! : 𝐈.𝐕.𝐘 , 𝟒𝐊𝐀𝐈 !!
 
