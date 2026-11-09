@@ -22,7 +22,7 @@
 
 . this man lowk grows on me tsk .
 
-![aa](https://plain-eeur-prod-public.komododecks.com/202611/09/ZxEOdlphAE3qwPMBLcSi/image.png)
+![aa](https://plain-eeur-prod-public.komododecks.com/202611/09/C6yu1Z7GbJ9KESgvtN5N/image.png)
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ . . .
 
