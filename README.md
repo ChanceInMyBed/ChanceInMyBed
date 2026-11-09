@@ -21,7 +21,7 @@
 
 ▽ . . . the monthly . . laugh maker goes.. to.. whatever THAT IS
 
-![.spy..](https://kommodo.ai/i/SWIwCRBcJQAZGvuvqqkv)
+![.spy..](https://plain-eeur-prod-public.komododecks.com/202611/09/SWIwCRBcJQAZGvuvqqkv/image.png)
 
 𝐂𝐑𝐄𝐀𝐓𝐎𝐑𝐒 𝐈 𝐋𝐎𝐕𝐄 !! : 𝐈.𝐕.𝐘 , 𝟒𝐊𝐀𝐈 !!
 
