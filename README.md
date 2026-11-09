@@ -19,10 +19,6 @@
 .
 >𝐢 𝐜𝐚𝐧 𝐛𝐞 𝐦𝐞𝐚𝐧 𝐬𝐨𝐦𝐞𝐭𝐢𝐦𝐞𝐬 𝐰𝐡𝐞𝐧 𝐢𝐦 𝐧𝐨𝐭 𝐢𝐧 𝐛𝐞𝐬𝐭 𝐦𝐨𝐨𝐝 𝐬𝐨𝐫𝐫𝐞 . . .
 
-▽ . . . the monthly . . laugh maker goes.. to.. whatever THAT IS SPYY YOURE OKAY ..
-
-![.spy..](https://plain-eeur-prod-public.komododecks.com/202611/09/SWIwCRBcJQAZGvuvqqkv/image.png)
-
 𝐂𝐑𝐄𝐀𝐓𝐎𝐑𝐒 𝐈 𝐋𝐎𝐕𝐄 !! : 𝐈.𝐕.𝐘 , 𝟒𝐊𝐀𝐈 !!
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ . . .
